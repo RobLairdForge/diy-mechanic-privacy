@@ -1,1 +1,1 @@
-# diy-mechanic-privacy
+# diy-mechanic-privacy/privacy-policy.html
